@@ -6,5 +6,5 @@ significant model
 https://docs.google.com/presentation/d/14jMOhMXEK3BEaWtiAFnsV-sKYkadg2hd/edit?usp=sharing&ouid=114878825631654882543&rtpof=true&sd=true
 
 single slide
-https://docs.google.com/presentation/d/11kDmHGHVYnzb-VkR3vJYY2TyR0Yjrw_0/edit?usp=sharing&ouid=114878825631654882543&rtpof=true&sd=true
+https://drive.google.com/file/d/19mjNQNgpkkFlk0rlGtDOwcrBhj9JW74_/view?usp=sharing
 
