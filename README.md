@@ -8,3 +8,5 @@ https://docs.google.com/presentation/d/14jMOhMXEK3BEaWtiAFnsV-sKYkadg2hd/edit?us
 single slide
 https://drive.google.com/file/d/19mjNQNgpkkFlk0rlGtDOwcrBhj9JW74_/view?usp=sharing
 
+analysis of IV and DV
+https://youtu.be/lSpzKZA4UQU
