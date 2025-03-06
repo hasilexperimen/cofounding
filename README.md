@@ -17,3 +17,6 @@ https://youtu.be/lSpzKZA4UQU
 
 https://youtu.be/hJsYp06LXKc
 
+full manuscript
+
+https://drive.google.com/file/d/15kegfFBDuII4J0CW1rkE9UCJ-4ZwdpUO/view?usp=sharing
